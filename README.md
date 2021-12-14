@@ -1,1 +1,1 @@
-# Anna C. Cichocki
+Anna C. Cichocki
